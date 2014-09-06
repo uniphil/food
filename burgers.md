@@ -37,9 +37,7 @@ roughly what I remember we did
 5. fry em up! we use a panini press, and cook until they become browned on the outside. they could also be fried in a little oil and then baked. bbq would be tricky but probably doable.
 
 
-### 
-
-notes
+### general veggie burger notes
 
  * The beans, carrot, flour, psyllium husk, and tomato paste all help bind the burgers together. Good substitutions:
     - bread crumbs (you can add lots to stretch the recipe to make more burgers, but with more than maybe 1/2 cup they will be a little less hearty. they might need more liquid, and they definitely need the resting time)
