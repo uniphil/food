@@ -45,3 +45,4 @@ roughly what I remember we did
     - chia seeds instead of flax. they can go straight in.
     - 2 eggs, if you want to be less cool.
  * All of the other ingredients are optional and swap-able, and you can add whatever you want. Just keep things in small pieces.
+ * Soy sauce is a great flavouring ingredient, we just didn't have any on hand
